@@ -1,0 +1,1 @@
+# mo-minovuz_rasmiy
